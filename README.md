@@ -1,1 +1,1 @@
-Lab 1 completed by Zaid, September 2026.
+Lab 1 completed by Zaid (ZAIDOLOGY), September 2026.
